@@ -1,1 +1,2 @@
 
+Hyr lägenhet utan kö
